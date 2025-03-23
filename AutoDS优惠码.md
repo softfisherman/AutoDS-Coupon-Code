@@ -2,7 +2,7 @@
 
 👉 [立即领取优惠码！](https://bit.ly/4kRrsh8)
 
-![AutoDS自动化工具封面图](https://via.placeholder.com/1200x600)
+![AutoDS自动化工具封面图](https://aiwoma.top/PicGo/iShot_2025-03-23_21.29.36.png)
 
 ## 目录
 - [为什么选择AutoDS？](#为什么选择AutoDS)
@@ -67,7 +67,7 @@ AutoDS是全球顶尖的电商自动化工具，专为跨境电商卖家设计�
 3. **完成邮箱验证** → 获取完整功能权限
 4. **绑定销售渠道** → 支持eBay、Shopify等平台
 
-![AutoDS注册流程示意图](https://via.placeholder.com/800x400)
+![AutoDS注册价格方案](https://aiwoma.top/PicGo/iShot_2025-03-23_21.31.50.png)
 
 > **注意事项**：优惠码仅限首购账户使用，若中途取消试用，需等待30天才能再次享受优惠。
 
